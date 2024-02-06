@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Rynnmadl
-my hobby
+- Asuna yuuki
